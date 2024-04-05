@@ -1,2 +1,0 @@
-# ActividadClase
-# ActividadClase
